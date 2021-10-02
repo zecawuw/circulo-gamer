@@ -1,3 +1,4 @@
 # circulo-gamer
 
-![img](blob:https://web.whatsapp.com/25dab73f-6f0c-47ce-8b6d-b3a0022082f4)
+![image](https://user-images.githubusercontent.com/88804350/135734692-819f073f-3887-4d83-8ec3-579b92f60abb.png
+
